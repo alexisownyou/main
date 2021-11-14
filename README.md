@@ -19,7 +19,5 @@ I enjoy Crypto, BlockChain, Metaverse stuff. Don't hesitate to reach me, i'm wil
 
 alexis-perge.fr
 alexisownyou@gmail.com
-perge.alexis@orange.frc
-
-
+perge.alexis@orange.fr
 
